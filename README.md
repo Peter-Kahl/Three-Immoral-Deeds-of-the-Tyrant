@@ -4,7 +4,7 @@
 
 ![alt text](https://github.com/Peter-Kahl/Three-Immoral-Deeds-of-the-Tyrant/blob/main/tyrant_honey_lips.jpg?raw=true)
 
-by Peter Kahl; independent scholar; published 12 July 2025
+by Peter Kahl; independent scholar; published 15 July 2025
 
 ### Abstract
 
